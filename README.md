@@ -176,7 +176,7 @@ To explore this in depth, refer to:
 
 **Shekhar Shrivas**
 - GitHub: [@shekharshrivas](https://github.com/shekharshrivas)
-- LinkedIn: [Connect on LinkedIn](https://www.linkedin.com/in/shekharshrivas/)
+- LinkedIn: [Connect on LinkedIn](www.linkedin.com/in/shekhar-shrivas-26499b253)
 
 ---
 
